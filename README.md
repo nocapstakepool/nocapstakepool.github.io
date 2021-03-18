@@ -1,0 +1,1 @@
+# nocapstakepool.github.io
